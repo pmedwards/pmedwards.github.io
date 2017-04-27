@@ -13,3 +13,5 @@ Campus Box 3470
 Chapel Hill, NC 27599-3470  
 phillip.m.edwards@gmail.com  
 +1 (919) 448-8808  
+
+Editorial staff member, _Hybrid Pedagogy_
